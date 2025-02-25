@@ -60,13 +60,13 @@ Playing unblocked games like Cookie Clicker offers several benefits:
 
 Want to become a cookie-clicking master? Follow these pro tips:
 
-✅. Prioritize Upgrades – Focus on multipliers and automation.
+✅ Prioritize Upgrades – Focus on multipliers and automation.
 
-✅. Click Golden Cookies – These provide massive bonuses.
+✅ Click Golden Cookies – These provide massive bonuses.
 
-✅. Optimize Sugar Lumps – Use them to level up your best buildings.
+✅ Optimize Sugar Lumps – Use them to level up your best buildings.
 
-✅. Prestige Wisely – Reset at the right time for long-term benefits.
+✅ Prestige Wisely – Reset at the right time for long-term benefits.
 
 
 ---
