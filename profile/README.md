@@ -2,7 +2,7 @@
 
 [![COOKIE CLICKER](https://github.com/user-attachments/assets/2c6833be-ba51-4cc0-bdd2-fb6b933d11b1)](https://cookieclicker.ee/)
 
-Play Cookie Clicker [here](https://cookieclicker.ee/)
+### Play Cookie Clicker [here](https://cookieclicker.ee/)
 
 Are you looking for a way to enjoy Cookie Clicker at school or work without restrictions? Good news! Unblocked games allow you to play your favorite idle game from anywhere, bypassing network restrictions. Whether you're a student on break or an office worker needing a fun distraction, this guide will show you how to access and enjoy Cookie Clicker unblocked.
 
@@ -24,9 +24,9 @@ Key Features:
 5. Play Anywhere – Enjoy Cookie Clicker even on restricted networks!
 
 ---
-## 🔓 How to Play Cookie Clicker 2 Unblocked
+## 🔓 How to Play [Cookie Clicker](https://cookieclicker.me) Unblocked
 
-If Cookie Clicker 2 is blocked at school or work, try these methods:
+If Cookie Clicker is blocked at school or work, try these methods:
 
 1. Play on trusted unblocked game sites
 
@@ -43,7 +43,7 @@ If Cookie Clicker 2 is blocked at school or work, try these methods:
 🎮 [Steam Version](https://store.steampowered.com/app/1454400/Cookie_Clicker/)
 
 ---
-## 🏆 Why Play Cookie Clicker Unblocked?
+## 🏆 Why Play [Cookie Clicker](https://cookieclickernew.github.io) Unblocked?
 
 Playing unblocked games like Cookie Clicker offers several benefits:
 
